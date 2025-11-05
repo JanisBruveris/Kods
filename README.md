@@ -1,2 +1,0 @@
-# Kods
-jajaj
